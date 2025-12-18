@@ -115,7 +115,9 @@ SOFTWARE.
 ## Author
 
 GitHub: https://github.com/09-jigsaw
+
 Email: 09_jigsaw_sparks@icloud.com 
+
 Public contact: https://x.com/AmandaJohn31872
 
 ---
